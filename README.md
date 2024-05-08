@@ -6,7 +6,7 @@
 - 👯 I am open to collaborations and working on projects.
 - 💬 I am looking for a job or internship for summer 2025.
 - 📫 How to reach me: feel free to reach me at my [LinkedIn](https://www.linkedin.com/in/fabian-saldana-b046b4252/).
-- ⚡ Fun fact: I love to play volleyball and drawing!
+- ⚡ Fun fact: I love to play volleyball and draw!
 
 <!-- add internship with chris once the title etc is finalized -->
 
